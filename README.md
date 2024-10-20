@@ -1,4 +1,4 @@
-# DSP-Radio-Module-KT0936M-B9-
+# DSP-Radio-Module-KT0936M(B9)
 https://massa4649.booth.pm/items/5751220 の製品説明となります。  
 
 ## 概要  
